@@ -1,9 +1,4 @@
-## Hi there 👋
-
-<!--
-**thisrunsthru/thisrunsthru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+## Hi there 👋 I'm Benjamin!
 
 - 🔭 I'm currently working on learning GitHub along with taking free cybersecurity courses from Cybrary.it
 - 🌱 I’m currently learning the basics of software development, as well as introductory classes on cybersecurity
@@ -12,5 +7,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about the West Coast!
 - 📫 How to reach me: kordashben@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Used to play in rock bands - Now undergoing a career shift!
--->
+- ⚡ Fun fact: Used to play in rock bands - Now undergoing a career shift
