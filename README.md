@@ -6,6 +6,4 @@
 - 🤔 I’m looking for help with anything!
 - 💬 Ask me about Seattle!
 - 📫 How to reach me: Send me a msg on GitHub.
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: Used to be a touring rock musician until I got sick and tired of living out of a van and a suitcase. Career paradigm shift time!
-- 👽 Websites featuring my first band:  https://sweatysweaters.bandcamp.com/
+- 😄 Pronouns: He/Him.
