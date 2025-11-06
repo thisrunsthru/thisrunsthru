@@ -1,1 +1,3 @@
-Looking forward to the new month of November 2025, here is the logbook/daily journal entry place for whatever takes place
+Looking forward to the new month of November 2025, here is the logbook/daily journal entry place for whatever takes place  
+11/6/2025 at 2:43 am - the mariners did not end up pulling off a miracle.  On 10/31/2025 the contributions tracker on your github profile page changed to a candy corn-themed funhub!  I created a new Notion page...
+
