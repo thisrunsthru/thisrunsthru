@@ -7,5 +7,4 @@
 - 💬 Ask me about Seattle sports! Go Mariners!
 - 📫 How to reach me: message me here on Github
 - 😄 Pronouns: He/Him.
-- 🗓️ Updated 3/25/2026 at 0500
-- -@thisrunsthru
+- 🗓️ Updated 5/2/2026 @ 12:27 am
