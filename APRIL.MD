@@ -5,4 +5,5 @@ It's Easter Sunday and I have on my nice pair of Clark's leather shoes because a
 My Mariners are playing their Sunday day game in Los Angeles against the usually not-so-great Angels.  They beat us last night 1 to 0. We didn't manage to put up a single run the entire game! Disaster...  
 Anyways I copied a Skills Repository to work on about Git but I just realized that I can't really complete the Bot-led exercise on my Android smartphone so next time I get on one of the PC workstations on the 1st floor I'll go ahead and work through it. 
 BK-  
-  
+May 24th 2026 at 12:51 PM  
+April is long-gone and I'm going to create a brand new Markdown file in its honor!
