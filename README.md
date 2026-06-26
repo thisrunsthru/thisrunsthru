@@ -1,10 +1,11 @@
 ## Hi there 👋 I'm Benjamin!
 
-- 🔭 I'm currently working on learning basic tech skills such as navigating the GitHub platform, 
-- 🌱 I’m currently learning the snowflake platform, agentic AI skill coding, and keeping current with the tech-o-sphete
-- 👯 I’m looking to collaborate after I strengthen my GitHub profile.
-- 🤔 I’m looking for help with GitHub syntax and assumptions I may have wrong.
+- 🔭 I'm currently working on earning my Google Cloud Cybersecurity Certificate
+- 🌱 I’m currently learning how to become more proficient at MCP, Agentic AI, Notebook LM, etc.
+- 👯 I’m looking to collaborate with people in my Google Developer's Group of Seattle
+- 🤔 I’m looking for help with Claude Code & OpenAI's Codex
 - 💬 Ask me about Seattle sports! Go Mariners!
-- 📫 How to reach me: message me here on Github
+- 📫 How to reach me: kbp406@gmail.com
 - 😄 Pronouns: He/Him.
-- 🗓️ Updated 5/2/2026 @ 12:27 am
+- 🗓️ Updated 6/26/2026 @ 7:35 am.
+- THE END
