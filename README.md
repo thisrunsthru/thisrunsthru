@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with people in my Google Developer's Group of Seattle
 - 🤔 I’m looking for help with Claude Code & OpenAI's Codex
 - 💬 Ask me about Seattle sports! Go Mariners!
-- 📫 How to reach me: kbp406@gmail.com
+- 📫 How to reach me: thisrunsthru.running435@slmails.com
 - 😄 Pronouns: He/Him.
-- 🗓️ Updated 6/26/2026 @ 7:35 am.
-- THE END
+- 🗓️ Updated: 7/20/2026 at 10:27 pm
+- THE END!
