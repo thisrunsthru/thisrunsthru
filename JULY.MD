@@ -1,1 +1,2 @@
-JULY2026 - 6:56 PM - THE USA MEN'S NATIONAL TEAM IS CURRENTLY PLAYING BELGIUM IN SPACE THE ROUND OF 32. LOSERS GO HOME. THIS GAME IS BEING PLAYED AT SEATTLE STADIUM AKA LUMEN FIELD IN THE SODO DISTRICT OF SEATTLE.
+JULY2026 - 6:56 PM - THE USA MEN'S NATIONAL TEAM IS CURRENTLY PLAYING BELGIUM IN SPACE THE ROUND OF 32. LOSERS GO HOME. THIS GAME IS BEING PLAYED AT  SEATTLE STADIUM AKA LUMEN FIELD IN THE SODO DISTRICT OF SEATTLE. 
+7/26/2026 2pm - It's a Sunday afternoon and across the street at Seattle Center (home of the Space Needle) My apologies but my machine isn't functioning properly and I'm going to need to restart the device at this time.  I'll return to finish the update as soon as I possibly am able to.
