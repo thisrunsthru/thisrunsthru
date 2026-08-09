@@ -1,0 +1,4 @@
+August 2026 –     
+So much has happened to me since I received my MMR vaccination at Dr. Sri's clinic in Pioneer Square.  Read the full unabridged document which details my recent experience(s) as a 42 year old man who is really only about 20 years old on the inside...if that makes sense?  I now have a proper smartphone: I scored a Samsung Galaxy A42 5G smartphone (released in late 2020-early 2021. AirTalk Wireless, a Lifeline provider, was selling it for $45.00 plus taxes, fees, and shipping. Since the provider is a Lifeline enrolled entity, I pay $10.00 per month which includes 10GB of 5G data with Hotspot included. I already broke the he77 out of the screen. That's what I get for carrying it around town before buying a $8.00 case from Amazon! So I will probably get another new phone soon. I can't deal with the cracked up display.  That's all I have for this GitHub log. Visit my Capacities.io Workspace for a proper update.  
+BK 206.790.1893
+
